@@ -1,4 +1,4 @@
 # uniquegracey
-Call us for your financial services  at 
+Call us for your financial services  at: 
 # 07062815863
-We are at service
+Uniquegracey, a name you can trust.
